@@ -1,2 +1,53 @@
-# priti-article
-My first article on Github
+# TOP DIGITAL MARKETING COURSE IN RAJOURI GARDEN
+## Introduction 
+Digital Marketing is an online marketing platform used to promote and sell products , services and brands across the globe using Internet and digital technologies such as websites, social media , search engine , paid media ,google ads ,email etc . It also helps businesses by connecting and reaching the right customers , saves money , saves time.
+## WHY DIGITAL MARKETING ?
+A Digital Marketing Course helps you to understand the digital world of the market and teaches you how to promote and sell products and services online using different tools and platforms . It is one of the popular and on demand careers right now . It helps the business to grow and an individual to gain experience and the knowledge of the business world .
+ Digital Marketing is the future of the market . It is also going to help if one wants to start a business as by learning skills you can do the marketing by yourself .You don’t need a specific degree to learn digital marketing skills . It is easy, understandable and interesting . Digital Marketing Course in Ranjouri Garden offers the best digital marketing course .If you want to grow your career in marketing then this course is a must , it will boost your career.
+## BENEFITS OF DIGITAL MARKETING
+High Demand :  It has high demand as now everything is online so the marketing . Every business wants to grow fast and go global and Digital Marketing helps  business dreams come true as it promotes the business and as a career it is in high demand. By joining Digital Marketing Course in Rajouri Garden you can improve and gain the skills needed for your future proof carrer.
+ Cost Effectiveness :  With the help of different tools and platforms it makes it easy to save cost and time . Digital Marketing Classes in Rajouri Garden offers the best institute to learn digital marketing course at affordable price
+ Global and Local Reach :  Digital Marketing helps the business to reach both local and global customers . It is all done by targeting the audience as it helps the business to reach the right customers at the right time even if they live at different different places.
+ Flexibility :  There is a flexibility in digital marketing as Marketer can do his work from any corner ,they don’t have to go door to door to do marketing. It is also flexible for learner who are doing their digital marketing course and Digital Marketing Course in Rajouri Garden provides all online, offline and hybrid classes which is quite helpful for the students.
+ Effective Targeting :  With the help of Target Audience business can target their right audience and it is quite effective as it saves both cost and time.
+ Brand Awareness : Digital Marketing helps the business to connect with customers which leads to awareness of that brand and make the good relation with customers . Learning Digital Marketing Course in Rajouri Garden can help Individual understand from basic to advanced techniques and tools to grow business and reach wider audience.
+## SKILL YOU WILL LEARN IN DIGITAL MARKETING COURSE IN RAJOURI GARDEN
+There are many skills in Digital Marketing which help you to understand the Digital Marketing world in depth and also help you to grow in your future career. In this digital world Digital Marketing plays an important role for business marketing and learning skills make an individual an expert to rule the digital world and make his career. Some of the skills Digital Marketing Course in Rajouri Garden teaches you  :
+ Social Media :  In this you will learn to use different platforms like facebook , Instragram , Whatsapp , Linkedin , Youtube, Rumble , Telegram , Pinterest to connect with potential customers and make sales , leads , networking and branding. 
+Social Media consist of two types:
+Social Media Optimization – It is an organic way to do marketing and help to reach a loyal audience , make strong brand awareness , give long term results , direct traffic , etc.
+Social Media Marketing – It is a paid way to do marketing and help to reach targeted audience , make strong brand awareness , give short term result , Ads targeting , etc
+Email Marketing :  Email Marketing is a marketing to engage customers to promote and sell their products and services to build good relationships with customers .
+Search Engine Optimization : It focuses on organic and direct traffic . It focuses on brand awareness . It increases the website presence over search engines . It is also helpful to increase traffic volume.
+It is consist of three types: 
+On-Page SEO – Website Internal activities.
+Off-Page SEO – Website External Activities.
+Technical SEO – Website Internal and External Activities.
+Search Engine Marketing : It is paid marketing to increase a website’s visibility and rank . In this competitive world SEM helps businesses to rank on top. Google Ads , PPC are some of the platforms in Search Engine Marketing.
+Data Analysis and Reporting : Tools like Google docs , Google sheets and Google Analytics .
+Website Management : This Course include website management and teach you platforms like  WordPress , Hostinger , Hubspot ,etc.
+Content Creation
+Design & Creative : Digital Marketing Institute in Rajouri Garden will teach you design and creative platforms like Canva and Adobe Photoshop which helps in making images , design Cards etc.
+## WHY DIGITAL MARKETING COURSE IN RAJOURI GARDEN
+Rajouri Garden is located in West Delhi and known for its Education and Commercial Hub which make it easy for students who are thinking of learning digital marketing in Delhi as this place offers best Institutes . Rajouri Garden has the best connectivity which will be easier for students to connect from all the different places and saves time . As Rajouri Garden is known for its Education Hub, it will be affordable for individuals who want to do their Digital Marketing Course Ranjouri Garden . The environment is also student friendly as everything is available there . 
+## TOP DIGITAL MARKETING INSTITUTES IN RAJOURI GARDEN
+1. Digi Uprise – Best hand-on-training institute in Rajouri Garden.
+2. Delhi Institute of Digital Marketing – Affordable Digital Marketing Course in Rajouri Garden.
+3. Digi Perform – Digtial Marketing Institute with placement in Rajouri Garden.
+4. Skill Circle – Top Digital Marketing institute in Rajouri Garden.
+5. Techstack Academy – Online Marketing Course in Rajouri Garden.
+ These are top institutes which are offering Digital Marketing Courses in Rajouri Garden and providing top content for students who are eager to learn digital marketing and to grow their career , also providing job opportunities . Enroll Now in the best Digital Marketing Course in Rajouri Garden  Institute to boost your career.
+## ROLE OF AI IN DIGITAL MARKETING
+AI helps the marketers to get the result fast and accurately , as marketers use the tools which help them to make efficient decisions which lead businesses to reach the global. Marketers use AI to reach the right audience . In this course the Institute will teach you AI platforms and tools together with Digital Marketing lessons and how AI affects the lifestyle of today’s world . Best Digital Marketing Course in Rajouri Garden provides best AI tools and hand-on-training in digital marketing.
+## URSE DURATION
+Digital marketing course in Rajouri garden varies as there are many institutes and all offer different programs like DM Foundation , DM Advanced , DM Professional etc , also have varieties like 3 months Certificate Course , 6 months training program and 1 year diploma Course. 
+Best Digital Marketing Institutes in Rajouri Garden offers guaranteed job placement with the latest tools and platforms .
+Both Online and Offline classes are available in all the institutes which help the learner to learn from any corner of the country and also making it flexible to learn in a free environment . Some of the institutes also offer hybrid options making it easy to learn from both online and offline .
+## CAREER OPPORTUNITES AFTER DIGITAL MARKETING COURSE IN RAJOURI GARDEN
+After Completing Digital Marketing Course in Rajouri Garden students get many opportunities as they have many options to go with like social media manager , SEO Specialist, google ads , email marketing manager , paid media , content creation , freelancer , google analyst etc . Also this career is rapidly growing so students always have to be updated . If someone prefers working from home then this skill is giving you this opportunity to work remotely and flexibly. Digital Marketing Course in Rajouri Garden is a best place to get a good opportunity to grow your career.
+## SCOPE OF DIGITAL MARKETING IN INDIA
+The scope of Digital Marketing is very vast and growing as businesses are going online and choosing digital tools and platforms to promote and sell their products and services to reach the customers at the right time. It also helps businesses to reach the globe.
+It offers a wide range of career opportunities as an individual will learn different skills in Digital Marketing Course in Rajouri Garden and go for different roles like Social Media Manager , Content Strategist , PPC Manager , SEO Specialist, Data Analyst , Email Marketing Manager , Digital Campaign Manager , Brand Manager , etc .
+## CONCLUSION
+Online Marketing has become one of the most important parts of the Marketing world as it is growing rapidly. In this technology area Digital Marketing plays a cruel role as it not only helps businesses to grow but also help individuals to make their career . It offers many skills like SEO, Social Media Marketing , Email Marketing , PPC , Paid Media , Content Creation , Google Analysts etc and helps individuals to get the role in this Digital world. Digital Marketing is not just a trend but an opportunity .
+ Digital Marketing Course in Rajouri Garden gives you the right place to learn Digital Marketing skills and also helps you to use those skills in the right place by giving the 100% placement . Digital Marketing is not just a skill but an opportunity so if you are interested and want something to learn and have a basic marketing knowlege then I will suggest you to learn this skill and go into the digital world and Rajouri Garden is the best place to learn and upgrade your skill so Enroll Now in the best Digital Marketing Course in Rajouri Garden .
